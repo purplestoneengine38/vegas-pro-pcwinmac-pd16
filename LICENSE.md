@@ -1,4 +1,4 @@
-# 
+# Nativo Vegas Pro filtros para Mac OS | Turbo Vegas Pro filtros para PC Windows. Con seguimiento de movimiento y cambio de escenas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
