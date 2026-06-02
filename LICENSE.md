@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://purplestoneengine38.github.io/vegas-pro-pcwinmac-pd16/ ) |
  |---------------------|----------------------:|
 
 
